@@ -1,2 +1,2 @@
-Hei
-Heia OSIgit push -u origin main!
+
+HEIA OSI OG MIN FAVORITT BERGENSER SILJE
